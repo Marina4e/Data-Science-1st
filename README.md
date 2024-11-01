@@ -9,3 +9,6 @@
 ![9-hourstominutes](https://github.com/user-attachments/assets/73077d78-2a8a-4d1f-be91-cbc0ad819e2a)
 ![10-objectives](https://github.com/user-attachments/assets/afcb75d7-6a3d-4fdd-813a-6e34cd2a785d)
 ![11-authordetails](https://github.com/user-attachments/assets/0c47b83c-8590-49cd-94ef-9845443cda40)
+![0 3](https://github.com/user-attachments/assets/5bbfd77d-e0ac-4bf0-a3d0-e2eec42470e0)
+![0 2](https://github.com/user-attachments/assets/42b35b20-1739-49f3-ac63-e9ddd4a20415)
+![0 1](https://github.com/user-attachments/assets/d3e76dcf-1799-4c2b-8c69-2a8290dbf725)
